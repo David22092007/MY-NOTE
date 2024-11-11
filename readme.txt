@@ -1,3 +1,4 @@
+https://www.tiktok.com/@1dlerosie?_t=8rIPcsCg69B&_r=1
 ran_okirenai 
 kim_teari
 https://apps.apple.com/sg/app/moon-vn-app-h%E1%BB%8Dc-online/id6446349611
