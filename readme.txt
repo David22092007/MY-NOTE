@@ -1,6 +1,6 @@
 [TRỊNH ĐÌNH TRIỂN KHÓA HỌC](https://docs.google.com/spreadsheets/d/1PK0F2ZgY-Y9hTF5njuNU2JNiCPOklFRS90NheM9uYFw/edit?gid=676698920#gid=676698920)
 [VTED KHÓA HỌC](https://docs.google.com/spreadsheets/d/1flZOipB2jphf54EaVvBqCDVJCIQLcoBkVBeMi4cijZ4/edit?gid=0#gid=0)
-[Vào link học ngay](https://david22092007.github.io/hocchuicvb.github.io/)
+[CVB TRA BÀI NGAY](https://david22092007.github.io/hocchuicvb.github.io/)
 https://www.tiktok.com/@1dlerosie?_t=8rIPcsCg69B&_r=1
 ran_okirenai 
 kim_teari
